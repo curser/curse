@@ -1,0 +1,2 @@
+# curse
+To curse people
